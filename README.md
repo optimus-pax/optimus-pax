@@ -40,6 +40,9 @@ People who treat others(who are clearly not okay with it) like shit for genuinel
  <summary> 𝐅𝐀𝐍𝐃𝐎𝐌𝐒</summary>
 
   ### 
+
+  Supernatural
+  
   Transformers !! (G1, TFO, TFA , Earthspark ,TFP, Bayverse , Armada, beast wars , IDW, rescue bots ) Knockout & Rumble my beloved </3
 
 Project Hail Mary
