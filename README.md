@@ -10,7 +10,7 @@
   $\color{#6b3159}{\textsf{Don't let}}$ $\color{#7a2d59}{\textsf{Optimus Prime}}$ $\color{#802a4d}{\textsf{find you.}}$ ❞ ⋆˙⟡ </p>
 
  <div style="margin:4px 0;">
-<a href="https://osal.straw.page">STRAWPAGE</a> ֶָ֢𖹭 <a href="https://orion-prime.atabook.org/">SIGN ATA!</a>
+<a href="https://osal.straw.page">STRAWPAGE</a> ֶָ֢𖹭 
 
  
 
