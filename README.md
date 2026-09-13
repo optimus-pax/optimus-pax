@@ -19,6 +19,16 @@
 
 <p>
 <details>
+  <summary>𝐀𝐁𝐎𝐔𝐓 𝐌𝐄</summary>
+
+   ###
+  Pretty much lost in our world 99.9% of the time, even our friends, family and coworkers have to poke at us a few times before we even fully realize they were talking to or getting upset with us. We're usually creepily hyperaware of people's feelings and behavior once we actually lock in I promise we're not being ignorant on purpose. </3
+
+  Also we're not shy or introverted, we just suck at talking to people first or actually keeping conversation because it's literally just the last thing on our mind. Pls don't be discouraged from talking to us because of how quiet we are.
+  
+  </details>
+  
+<details>
   <summary>𝐃𝐍𝚰</summary>
 
   ### 
