@@ -3,7 +3,7 @@
 . ˚꒰ঌ  ![](https://komarev.com/ghpvc/?username=orion-paxx&color=1d193b) ໒꒱˚.
   <div align="center">
 ˖
-<img width="800" height="450" alt="image" src="https://github.com/user-attachments/assets/6312213c-e7fb-4951-a9d0-614ab3f6f273" />
+<img width="900" height="350" alt="Image" src="https://github.com/user-attachments/assets/9a697cbb-5a01-429b-aece-3aca958c1ada" />
 
 . ˚. ❝ $\color{#413e69}{\textsf{Go hide,quickly.}}$ $\color{#4f3f66}{\textsf{Don't move.}}$ $\color{#53385c}{\textsf{Don't make a}}$ $\color{#5e3251}{\textsf{sound.}}$  . ˚　.
 <p>  ๋ ˖
